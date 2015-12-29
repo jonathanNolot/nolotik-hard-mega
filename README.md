@@ -1,1 +1,0 @@
-# nolotik-hard-mega
